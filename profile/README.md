@@ -2,7 +2,7 @@
 
 ---
 
-Looking for a smarter way to trade the global financial markets? **Eightcap** is a trusted online trading broker offering access to forex, indices, commodities, shares, and cryptocurrencies through powerful trading platforms. Whether you're a beginner or an experienced trader, you can now get an **exclusive 20% discount** by using the promo code: **INVEST** when you register or purchase an eligible offer.
+Looking for a smarter way to trade the global financial markets? **Eightcap** is a trusted online trading broker offering access to forex, indices, commodities, shares, and cryptocurrencies through powerful trading platforms. Whether you're a beginner or an experienced trader, you can now get an **exclusive 20% discount** by using the promo code: **INVEST** when you register or purchase an eligible offer
 
 💎 **Why Choose Eightcap?**
 Eightcap is known for its competitive trading conditions, fast execution speeds, and access to a wide range of global markets. It provides traders with professional tools and a seamless trading experience.
